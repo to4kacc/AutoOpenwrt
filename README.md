@@ -1,5 +1,8 @@
 基于lean 237 天灵大佬源码编译固件
-
+恩山https://www.right.com.cn/forum/?607080
+tg群聊：https://t.me/+BeBGWppfc8A2Yjg1
+QQ：1425502392
+承接各种定制openwrt
 欢迎git
 
 ![image](https://github.com/user-attachments/assets/1aa25ed1-4256-45e5-864e-3c50374ab537)
