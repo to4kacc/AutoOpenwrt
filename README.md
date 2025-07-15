@@ -18,4 +18,4 @@ QQ：1425502392
 ![image](https://github.com/user-attachments/assets/4c8a4d96-af10-47e0-bb8d-edb6f0c30123)
 ![image](https://github.com/user-attachments/assets/17a29be3-404e-4f4a-94ed-4636bc71241e)
 赞赏码可以喝个咖啡吗
-![IMG_0897](https://github.com/user-attachments/assets/b76f23ee-2c91-4c17-9fed-520454bec0e6)
+<img width="500" height="500" alt="无标题" src="https://github.com/user-attachments/assets/ba613c9a-22e6-4985-b8a6-ddb6ccb341ae" />
